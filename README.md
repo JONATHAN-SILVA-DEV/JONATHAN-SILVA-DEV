@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Jonathanjjk 💾
+## Bem-vindo(a) ao perfil do Jonathan 💾
 
  <div>
    <a href="https://github.com/Jonathanjjk">
